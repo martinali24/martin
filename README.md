@@ -1,6 +1,7 @@
 # Hola a todos 🙋‍♂️
 
-![image](https://github.com/user-attachments/assets/bdf52809-8cc0-4ef3-9dfa-b562972df5eb)
+![image](https://github.com/user-attachments/assets/d2f0336a-ce7f-4e1d-899f-15e567d982a8)
+
 
 
 
